@@ -1,3 +1,1 @@
 I'm a coder & procrastinator who makes things of visualization, HCI, etc...
-
-https://weibo.com/mayuqian
